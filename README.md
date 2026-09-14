@@ -1,2 +1,1 @@
-# moe
-no minors and antis allowed pls
+# no minors & antis allowed pls
